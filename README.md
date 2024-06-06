@@ -1,2 +1,2 @@
 # MyLove
-Um site para o meu amorzinho de aniversário
+Uma declaração de amor para minha namorada
